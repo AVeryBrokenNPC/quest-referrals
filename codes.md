@@ -1,6 +1,6 @@
 # quest referrals
 #### all of these are my referrals
-###### also it shows my full name for some reason
+
 ### [BONELAB](https://www.oculus.com/appreferrals/brokennpc/4215734068529064/?utm_source=2)
 
 ### [IEYTD2](https://www.oculus.com/appreferrals/brokennpc/2970998659623177/?utm_source=2)
